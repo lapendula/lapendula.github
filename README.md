@@ -1,1 +1,1 @@
-# lapendula.github
+# la-pendula.github.io
